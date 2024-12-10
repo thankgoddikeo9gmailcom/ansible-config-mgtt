@@ -5,3 +5,5 @@
 
 The people are getting tired.
 We are one
+
+THERE ARE SO MANY PEOPLE
